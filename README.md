@@ -1,2 +1,2 @@
-# Yabanie-Clotthing
+# Yabanie-Clothing
 E-Commence
